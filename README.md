@@ -1,4 +1,4 @@
-### 雄关漫道真如铁，而今迈步从头越🔴
+### 雄关漫道真如铁，而今迈步从头越 🔴
 Fear Not the Strong Pass Iron-Clad on All Sides, The Summit’s Now Surmounted With Big Strides 
 
 <!--
